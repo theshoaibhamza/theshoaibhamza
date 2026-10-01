@@ -24,4 +24,4 @@
 
 I’m always interested in connecting with developers, educators, students, and entrepreneurs who want to build something meaningful.
 
-**Learn. Build. Teach. Repeat.**
+**Learn, Build & Launch.**
